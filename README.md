@@ -2,7 +2,7 @@
 
 ---
 
-I am a student at the University of Iowa studying Finance and Data Analytics and Information Systems.
+I am a student at the University of Iowa with and anticpated graducation in May 2025 with a degree in Finance and Data Analytics and Information Systems.
 
 ---
 
